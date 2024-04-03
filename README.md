@@ -1,4 +1,4 @@
-# Hi there, I'm Respatee - aka [RespatiAhmad](linkedin.com/in/respatiahmads) 👋
+# Hi there, I'm Respatee - aka [RespatiAhmad](https://linkedin.com/in/respatiahmads) 👋
 ## About me:
 - 🔭 I’m currently Freelancing as Digital Marketers
 - 🌱 I’m currently learning Fb Ads and Data Analyst
